@@ -1,6 +1,6 @@
 # Matt Stadnicki
 
-![stadnicki](/Desktop/IMG_3538.JPG)
+![stadnicki](/Images/IMG_3538.JPG)
   
 ### something that you've done recently that you're particularly proud of
 
